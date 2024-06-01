@@ -1,6 +1,6 @@
 ## Oi to the World! 👋
 
-Hey there, I'm **hopnux**! I love hops & I distrohop, apt to dnf back and forth.
+Hey there, I'm **hopnux**!
 
 ### 🚀 About Me
 
